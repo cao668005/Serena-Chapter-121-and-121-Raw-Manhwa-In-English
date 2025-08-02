@@ -1,6 +1,6 @@
 # Serena Chapter 121 and 122 Raw Manhwa In English
 
-
+<a href="https://beacons.ai/manhwahub" target="_blank">📖 Read Serena Chapter 121 & 122</a>
 
 The story of *Serena* continues to captivate readers with its intense romance, emotional drama, and stunning artwork. Chapters **121** and **122** dive deeper into the emotional complexities between Serena and the Duke, bringing forth secrets, longing, and a hint of resolution.
 
